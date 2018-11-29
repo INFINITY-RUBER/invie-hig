@@ -1,2 +1,2 @@
 # invie-git
-clase de practiva en platzi
+tus merjores clases de guitarra invicibles con platzi
